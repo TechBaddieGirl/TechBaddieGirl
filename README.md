@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TechBaddieGirl
+- 👀 I’m interested in Automation
+- 😄 Pronouns: She
+- ⚡ Fun fact: coding saves lives
